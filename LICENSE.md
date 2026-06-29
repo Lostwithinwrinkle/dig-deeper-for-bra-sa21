@@ -1,4 +1,4 @@
-
+stealth dig deeper for brainrots Scripts is the best dig deeper for brainrots Script, featuring auto-farm and infinite resources. Safe and powerful
 
 
 
